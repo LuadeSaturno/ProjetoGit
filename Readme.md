@@ -1,1 +1,1 @@
-Olá pessoa amaveld a internet
+Olá pessoa amavel da internet
